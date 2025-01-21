@@ -68,6 +68,8 @@ Email: jskvishal@live.com
 
 Telegram: t.me/mmgpt_pro
 
-Bot prices start from 400$ to 1000$.
+Website: mmgpt.in
 
-MMGPT Light - Liquidity Made Smarter.
+Bot prices start from 500$ to 1500$.
+
+MMGPT - Liquidity Made Smarter.
